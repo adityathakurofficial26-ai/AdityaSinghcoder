@@ -1,2 +1,1 @@
-# AdityaSinghcoder
-CHUT PAGLU ANGLINA LOVER LOVE YOU 
+
