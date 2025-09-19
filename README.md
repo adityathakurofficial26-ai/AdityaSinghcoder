@@ -1,2 +1,2 @@
 # AdityaSinghcoder
-Learning journey for c programming
+CHUT PAGLU ANGLINA LOVER LOVE YOU 
